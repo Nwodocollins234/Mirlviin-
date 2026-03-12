@@ -1,13 +1,16 @@
 📊 ENTITY BREAKDOWN
-Vibysttxr Music Group (VMG)
-MAIN OPERATING COMPANY (Founded 2017) 
-Nigerian prominent full music company . Owned by Renzti Holdings.
+Mirlviin Dynasty (BSMD Beyond Supreme Mirlviin Dynasty)
+
+MUSIC OPERATING COMPANY (Founded 2015) 
+Nigerian major record company . Owned by Renzti Holdings and Ecomnivanserl Music Corporation.
 
 🏛️ VMG SUBSIDIARY OF RENZTI HOLDINGS AND ECOMNIVANSERL MUSIC CORPORATION 
 
 🌐 VERIFIED SOURCES
-- MusicBrainz VMG: [musicbrainz.org/artist/e72115da-...](https://musicbrainz.org/artist/e72115da-82cf-4579-a3d9-3065293dc193)
-
+- MusicBrainz BSMD
+- Yumpu
+- LinkedIn
+  
  👨‍💼 EXECUTIVE LEADERSHIP
 Nwodo Collins Chibuike (Renstar Boy)** - Founder, Chairman, CEO
 
